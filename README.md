@@ -1,1 +1,1 @@
-shit tonna shell scripts
+lol theres a lot
